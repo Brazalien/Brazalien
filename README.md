@@ -1,6 +1,6 @@
 - 👋 Hello world, I’m @Brazalien
 
-- 💞️ I’m looking to collaborate on learning new things...
+- I'm just getting started, gimme a sec.
 
 
 <!---
